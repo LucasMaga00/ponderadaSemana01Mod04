@@ -1,0 +1,1 @@
+Para ir para a parte 2, [clique aqui](https://www.tinkercad.com/things/47e8BnMeeov-arduino-ponderada-01-parte-02/editel?returnTo=https%3A%2F%2Fwww.tinkercad.com%2Fdashboard%2Fdesigns%2Fcircuits&sharecode=xMwQM4Or4RUrgSFtedhvtV1SiGLxZI_e7r6639hMliw)
